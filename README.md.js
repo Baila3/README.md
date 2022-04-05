@@ -1,2 +1,0 @@
-#Baila's Notes
-
